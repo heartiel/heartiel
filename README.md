@@ -14,7 +14,7 @@
   
 ###
 
-<h6 align="center"><br><br>loversㅤsinceㅤ<ins>13</ins>ㅤ<ins>06</ins>ㅤ<ins>25</ins></h6>
+<h6 align="center"><br><br><strong>lovers</strongㅤsinceㅤ<ins>13</ins>ㅤ<ins>06</ins>ㅤ<ins>25</ins></h6>
 
 ###
 
